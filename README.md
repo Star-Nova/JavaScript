@@ -1,0 +1,1 @@
+JavaScript Hakkında Her Şey
